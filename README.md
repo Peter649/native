@@ -1,0 +1,1 @@
+fucking wiered native activity
